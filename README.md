@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @1Devender1Singh1
-- 👀 I’m interested in ...coding,chess and music.
+- 👀 I’m interested in ...coding,chess, music, studies and cubing.
 - 🌱 I’m currently learning ... studying in class 10.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... devendersingh981666@gmail.com
